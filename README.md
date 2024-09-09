@@ -1,7 +1,7 @@
 
-##🐤leonardo🐤
+## 🐤leonardo🐤
 
-#"negro drama..."
+# "negro drama..."
 
 ##  ❤️  i love you mama ❤️
 
