@@ -3,7 +3,7 @@
 
 # "negro drama..."
 
-##  ❤️  i love you mama ❤️
+##  ❤️  i love my mama ❤️
 
 
 
